@@ -1,0 +1,1 @@
+# bda10th-SQL-2nd-presentation
